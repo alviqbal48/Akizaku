@@ -1,0 +1,2 @@
+# Akizaku
+Project of Akizaku
