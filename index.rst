@@ -34,3 +34,9 @@ http://www.sop-perusahaan.com/
 Me On Property - This is our website property telling about small & big house for our family to be safe & living health
 
 http://meonproperty.online/
+
+5. Creative Shoot
+===========================
+Jasa pembuatan cetak buku tahunan sekolah yang anti mainstream & momen tak terlupakan bersama teman-teman sekolah (Januari - Desember, 2020).
+
+https://creativeshoot.net
