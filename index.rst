@@ -16,6 +16,10 @@ Kami adalah pemimpin pasar dalam penyediaan peralatan dan layanan kebugaran di I
 Kami menyediakan berbagai peralatan dan layanan pendukung untuk bisnis kebugaran dan pengguna rumahan. Pernyataan Misi kami adalah memberikan solusi terjangkau dengan menyediakan produk berkualitas tinggi yang terjangkau tanpa mengorbankan kualitas kepada pelanggan.
 
 https://www.ob-fit.com/
+https://bandung.ob-fit.com/
+https://surabaya.ob-fit.com/
+https://makassar.ob-fit.com/
+https://semarang.ob-fit.com/
 
 2. Komunitas Akizaku
 ==========================
@@ -33,10 +37,16 @@ http://www.sop-perusahaan.com/
 ==========================
 Me On Property - This is our website property telling about small & big house for our family to be safe & living health
 
-http://meonproperty.online/
+https://meonproperty.online/
 
 5. Creative Shoot
 ===========================
 Jasa pembuatan cetak buku tahunan sekolah yang anti mainstream & momen tak terlupakan bersama teman-teman sekolah (Januari - Desember, 2020).
 
 https://creativeshoot.net
+
+6. Safelink Akizaku
+===========================
+Jasa pembuatan pendek link baik itu content artikel, video, comment, instagram, facebook, twitter dan lain sebagainya. Ayo, hasilkan uang melalui Safelink Akizaku
+
+http://safelink-akizaku.blogspot.com/
