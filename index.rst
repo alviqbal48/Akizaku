@@ -25,28 +25,23 @@ https://semarang.ob-fit.com/
 ==========================
 Forum komunitas akizaku yang bertujuan khusus untuk menyebar informasi bermanfaat baik itu amal, trading, bisnis, pengalaman, asuransi, pecinta hewan, dll.
 
-http://akizaku.unibrah.ac.id/
 
 3. SOP Perusahaan
 ==========================
 Jual Pembuatan berbagai jenis SOP perusahaan, departemen, HRD,Finance, dan Juga Bisnis lainnya bagi yang membutuhkan pembuatan Silahkan Kontak WA di
 
-http://www.sop-perusahaan.com/
-
 4. Me On Property
 ==========================
 Me On Property - This is our website property telling about small & big house for our family to be safe & living health
-
-https://meonproperty.online/
 
 5. Creative Shoot
 ===========================
 Jasa pembuatan cetak buku tahunan sekolah yang anti mainstream & momen tak terlupakan bersama teman-teman sekolah (Januari - Desember, 2020).
 
-https://creativeshoot.net
-
 6. Safelink Akizaku
 ===========================
 Jasa pembuatan pendek link baik itu content artikel, video, comment, instagram, facebook, twitter dan lain sebagainya. Ayo, hasilkan uang melalui Safelink Akizaku
 
-http://safelink-akizaku.blogspot.com/
+https://safelink-akizaku.blogspot.com/
+https://bettymaconaldforum.blogspot.com/
+https://gamercommunityhack.blogspot.com/
