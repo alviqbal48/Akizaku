@@ -44,4 +44,21 @@ Jasa pembuatan pendek link baik itu content artikel, video, comment, instagram, 
 
 https://safelink-akizaku.blogspot.com/
 https://bettymaconaldforum.blogspot.com/
+
+7. Gamer Hack Community
+===========================
+Jasa pembuatan cheat Lost Saga khusus Indonesia Thailand, Vietnam, Korea, USA, dan Cross fire Indonesia
+
 https://gamercommunityhack.blogspot.com/
+
+8. Akizaku Trading
+===========================
+Sering Loss Trading di Forex, Saham ataupun Binary Option? Kami (Tim Akizaku) siap membantu Anda untuk meraup profit (keuntungan) lebih banyak di Forex, Saham maupun Binary Option.
+
+https://akizaku.xyz/
+
+9. Akizaku Olahraga
+===========================
+Akizakuolahraga.xyz merupakan situs olahraga berkualitas yang membahas tips dan trik mengenai Kebugaran, Jasmani, kesehatan, Fitness, dan Gym
+
+https://akizakuolahraga.xyz/
