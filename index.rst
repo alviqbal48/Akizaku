@@ -15,7 +15,7 @@ Kami adalah pemimpin pasar dalam penyediaan peralatan dan layanan kebugaran di I
 
 Kami menyediakan berbagai peralatan dan layanan pendukung untuk bisnis kebugaran dan pengguna rumahan. Pernyataan Misi kami adalah memberikan solusi terjangkau dengan menyediakan produk berkualitas tinggi yang terjangkau tanpa mengorbankan kualitas kepada pelanggan.
 
-https://www.ob-fit.com/
+https://www.ob-fit.com/ 
 https://bandung.ob-fit.com/
 https://surabaya.ob-fit.com/
 https://makassar.ob-fit.com/
@@ -43,7 +43,7 @@ Jasa pembuatan cetak buku tahunan sekolah yang anti mainstream & momen tak terlu
 Jasa pembuatan pendek link baik itu content artikel, video, comment, instagram, facebook, twitter dan lain sebagainya. Ayo, hasilkan uang melalui Safelink Akizaku
 
 https://safelink-akizaku.blogspot.com/
-https://bettymaconaldforum.blogspot.com/
+
 
 7. Gamer Hack Community
 ===========================
@@ -62,3 +62,9 @@ https://akizaku.xyz/
 Akizakuolahraga.xyz merupakan situs olahraga berkualitas yang membahas tips dan trik mengenai Kebugaran, Jasmani, kesehatan, Fitness, dan Gym
 
 https://akizakuolahraga.xyz/
+
+9. Betty MacDonald Forum
+===========================
+Betty MacDonald fan club fans, Satire ist mein Lieblingstier (Satire is my favourite animal) by Wolfgang Hampel is like golden sunshine in very grey November
+
+https://bettymaconaldforum.blogspot.com/
