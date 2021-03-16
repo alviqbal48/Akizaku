@@ -74,5 +74,3 @@ https://bettymaconaldforum.blogspot.com/
 PowerEdge XE is the first server family purpose-built for complex, emerging workloads that require high performance and large storage. These robust servers deliver the reliability and security for demanding applications inside traditional data centers or in extreme conditions stretching from outside the data center to the harsh edge environment of the IT infrastructure.
 
 https://dell6r343poweredgeinternalcablebest.blogspot.com/
-
-https://dell6r343poweredgeinternalcablebest.blogspot.com/
